@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-me gusta la musica
+
 
 hola buenos dias....  mi nombre es gerardo perez santes 
 
